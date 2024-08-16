@@ -1,1 +1,1 @@
-# dekopinda-bungo
+# dekopinda-karanganyar
